@@ -1,0 +1,3 @@
+- Hi, I’m Natalie!
+- I am currently learning about how deep sea archaea impact nutrient cycling on our planet. 
+- I am interested in the evolution of life on Earth.
